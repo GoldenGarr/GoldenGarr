@@ -1,1 +1,1 @@
-![frog_stick-512px-26](https://user-images.githubusercontent.com/89833124/146675339-d68a33dc-b8d1-4107-8c12-90cffbb282fa.gif)
+![yep](https://user-images.githubusercontent.com/89833124/159476494-c2f518e6-ddf8-4f5e-8f42-0288de0de419.jpg)
